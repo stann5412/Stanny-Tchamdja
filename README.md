@@ -1,4 +1,4 @@
-# Stanny-Tchamcja
+# Stanny-Tchamdja
 
 # Hi there, I'm Essomanda Stanny Tchamdja! 👋
 
